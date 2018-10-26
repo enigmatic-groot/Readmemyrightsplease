@@ -1,1 +1,1 @@
-# Readmemyrightsplease
+# Coneptualize, strategize and ship!!
